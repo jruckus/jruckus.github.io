@@ -1,2 +1,2 @@
-! [Me](/images/IMG_2021)
+! [Me](/images/IMG_2021.jpg)
 # Justin Rucker
