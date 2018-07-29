@@ -3,4 +3,4 @@
 
 ## Your Personal Technology Consultant
 
-Send an email to jruckus@mac.com and let me know how I can help. 
+Send an email to [jruckus@mac.com](jruckus@mac.com) and let me know how I can help. 
