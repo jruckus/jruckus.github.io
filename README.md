@@ -1,4 +1,4 @@
-![Me](/images/me.jpg)<img src="/images/me.jpg"  width="120" >
+<img src="/images/me.jpg"  width="120" >
 # Justin Rucker
 
 ## Your Personal Technology Consultant
