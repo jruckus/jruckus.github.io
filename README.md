@@ -6,7 +6,7 @@
 I'm ready to mix your next project. I specialize in progressive rock, metal, and experimental hard rock.
 
 
-##RATES:
+## RATES:
 $10/minute to mix - includes 2 revisions. $5/revision after that   
 $10/track to master
 $50/track to play pre-written bass/guitar per track
