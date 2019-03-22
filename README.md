@@ -8,6 +8,7 @@ After training for Apple in multiple different Apple Stores I'm taking the exper
 
 ## RATES:
 $50 per 1 hour virtual lessom. The first lesson includes a 30 minute setup to get the virtual training set up over facetime/skype/google. 
+
 $75 per in person lesson. This can be conducted in a public place like your favorite coffee shop or in your own home. 
 
 All lessons are to be paid up front when lesson is scheduled. 
