@@ -5,7 +5,7 @@ Contact Me: [jruckus@mac.com](mailto:jruckus@mac.com)
 
 ##  Apple Trainer
 
-After training for Apple in multiple different Apple Stores I'm taking the experience and going freelance to provide virtual and in home Apple Training. Send an email to: jruckus@mac.com and let me know what you'd like to learn about and I'll be more than happy to create a custom lesson.
+After training for Apple in multiple different Apple Stores I'm taking the experience and going freelance to provide virtual and in home Apple Training. Send an email to: [jruckus@mac.com](mailto:jruckus@mac.com) and let me know what you'd like to learn about and I'll be more than happy to create a custom lesson.
 
 
 ## RATES:
@@ -15,4 +15,4 @@ $75 per in person lesson in the Cincinnati area. This can be conducted in a publ
 
 All lessons are to be paid up front when lesson is scheduled. 
 
-jruckus@mac.com
+[jruckus@mac.com](mailto:jruckus@mac.com)
