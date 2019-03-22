@@ -1,20 +1,13 @@
 <img src="/images/me.jpg"  width="120" >
 # Justin Rucker
 
-## AUDIO ENGINEER 
+##  Apple Trainer
 
-I'm ready to mix your next project. I specialize in progressive rock, metal, and experimental hard rock.
+After training for Apple in multiple different Apple Stores I'm taking the experience and going freelance to provide virtual and in home Apple Training. Send an email to [jruckus@mac.com](jruckus@mac.com) and let me know what you'd like to learn about and I'll be more than happy to create a custom lesson.
 
 
 ## RATES:
-$10/minute to mix - includes 2 revisions. $5/revision after that. example: 6:47 track = 6.47 * $10 = $64.70  
+$50 per 1 hour virtual lessom. The first lesson includes a 30 minute setup to get the virtual training set up over facetime/skype/google. 
+$75 per in person lesson. This can be conducted in a public place like your favorite coffee shop or in your own home. 
 
-$10/track to master
-
-$50/track to play pre-written bass/guitar per track
-
-If you need drums, I can connect you with someone to turn your programmed drums into some kick ass acoustic drums. 
-
-Send an email to [jruckus@mac.com](jruckus@mac.com) to get started.
-
-I look forward tomaking your tracks sound like they do in your head.
+All lessons are to be paid up front when lesson is scheduled. 
