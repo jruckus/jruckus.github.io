@@ -1,4 +1,4 @@
-Contact Me: jruckus@mac.com
+Contact Me: [jruckus@mac.com](mailto:jruckus@mac.com)
 
 <img src="/images/me.jpg"  width="280" >
 # Justin Rucker
