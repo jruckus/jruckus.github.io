@@ -1,3 +1,5 @@
+Contact Me: [jruckus@mac.com](jruckus@mac.com)
+
 <img src="/images/me.jpg"  width="280" >
 # Justin Rucker
 
