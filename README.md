@@ -1,4 +1,4 @@
-<img src="/images/me.jpg"  width="120" >
+<img src="/images/me.jpg"  width="180" >
 # Justin Rucker
 
 ##  Apple Trainer
