@@ -23,8 +23,6 @@ After training for Apple in multiple different Apple Stores I'm taking the exper
 ## RATES:
 $50 per 1 hour virtual lesson. The first lesson includes a 15 minute setup to get the virtual training going over facetime/skype/google. 
 
-$75 per in person lesson in the Cincinnati area. This can be conducted in a public place like your favorite coffee shop or in your own home. 
-
 All lessons are to be paid up front when lesson is scheduled. 
 
 [jruckus@mac.com](mailto:jruckus@mac.com)
