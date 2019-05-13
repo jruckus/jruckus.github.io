@@ -7,7 +7,6 @@
 
 EXAMPLES:
 
+<a href="https://youtu.be/vy0jSY-1BVQ"> TOOL Descending live remaster </a>
 
-https://youtu.be/vy0jSY-1BVQ
-
-https://youtu.be/EtYpFxCnoL0
+<a href="https://youtu.be/EtYpFxCnoL0"> TOOL invincible live remaster </a>
